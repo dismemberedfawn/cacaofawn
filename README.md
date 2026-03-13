@@ -1,8 +1,8 @@
-<p align="center"> " 𝐼'𝑣𝑒 𝑛𝑒𝑣𝑒𝑟 𝑔𝑖𝑣𝑒𝑛 𝑚𝑢𝑐ℎ 𝑡ℎ𝑜𝑢𝑔ℎ𝑡 𝑡𝑜 ℎ𝑜𝑤 𝐼 𝑤𝑜𝑢𝑙𝑑 𝑑𝑖𝑒.   
-<p align="center"> 𝐵𝑢𝑡 𝑑𝑦𝑖𝑛𝑔 𝑖𝑛 𝑡ℎ𝑒 𝑝𝑙𝑎𝑐𝑒 𝑜𝑓 𝑠𝑜𝑚𝑒𝑜𝑛𝑒 𝐼 𝑙𝑜𝑣𝑒... 𝑠𝑒𝑒𝑚𝑠 𝑙𝑖𝑘𝑎 𝑎 𝑔𝑜𝑜𝑑 𝑤𝑎𝑦 𝑡𝑜 𝑔𝑜. "
 <p align="center">
-<img src="https://i.pinimg.com/originals/ef/f6/e7/eff6e75d39e4e4f22e99783c3bea43b6.gif">
-  <p align="center"> sɪɢɴ ᴀᴛᴀ !!
+  <img src="https://cdn.discordapp.com/attachments/1393300440661360751/1482053388748329011/Senza_titolo_96_20260313173057.png?ex=69b58d47&is=69b43bc7&hm=75601cd1795ff737c1731d916408b11b12391fbc7d462465b268299cb9faf2e0&">
+<p align="center">
+<img src="https://i.pinimg.com/originals/fe/49/7d/fe497d3ebfd509b9506991a34110bae8.gif">
+  <p align="center"> 𝑠𝑖𝑔𝑛 𝑎𝑡𝑎 ♡ 
 <!--
 **cacaofawn/cacaofawn** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
