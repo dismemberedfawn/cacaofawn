@@ -1,5 +1,6 @@
 
-<!--
+<!--![fe497d3ebfd509b9506991a34110bae8](https://github.com/user-attachments/assets/f3f58a52-31b6-45c7-83cc-6be2ad723076)
+
 **cacaofawn/cacaofawn** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
 Here are some ideas to get you started:
