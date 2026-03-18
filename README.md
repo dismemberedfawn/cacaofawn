@@ -7,4 +7,4 @@
 
 <p align="center">       𝐬𝐢𝐠𝐧 𝐚𝐭𝐚 ♡    <img src="https://pixels.crd.co/assets/images/gallery06/74a3569b.gif?v=29416114">  <img src="https://pixels.crd.co/assets/images/gallery06/d0003fef.gif?v=29416114">
 
-<p align="center">       
+<p align="center">       ![Visitors](https://api.visitorbadge.io/api/visitors?path=dismemberedfawn&label=bodies&labelColor=%23ba68c8&countColor=%23d9e3f0)
